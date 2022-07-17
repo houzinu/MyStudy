@@ -1,2 +1,0 @@
-# MyStudy
-My notes
